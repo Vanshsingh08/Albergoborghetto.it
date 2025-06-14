@@ -1,2 +1,0 @@
-# Albergoborghetto.it
-Hotel
